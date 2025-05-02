@@ -15,8 +15,6 @@
 
 - 📫 How to reach me **thanushavadde9515@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1U7Vzv1swbOTOCjyyMtXt9oM8UQ3VMPP2/view?usp=sharing](https://drive.google.com/file/d/1U7Vzv1swbOTOCjyyMtXt9oM8UQ3VMPP2/view?usp=sharing)
-
 - ⚡ Fun fact **My secret talent? Making vegetables funny. I can turn a limp carrot into stand-up gold.**
 
 <h3 align="left">Connect with me:</h3>
